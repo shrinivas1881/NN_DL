@@ -13,3 +13,7 @@ Video Link:- https://drive.google.com/file/d/1EQVF75wezAmxd63hWyAjkP1D-GSFyPUL/v
 NN DL Assignment 3
 
 Video Link:- https://drive.google.com/file/d/14H0uTtaYz8xYn81aM6nm6LnRT6-RDe7w/view?usp=drive_link
+
+NN DL Assignment 3
+
+Video Link:- https://drive.google.com/file/d/1-GKw3_hz1kK84cRF11SzCPX32bgnb5fH/view?usp=drive_link
