@@ -21,3 +21,7 @@ Video Link:- https://drive.google.com/file/d/1-GKw3_hz1kK84cRF11SzCPX32bgnb5fH/v
 NN DL Assignment 5
 
 Video Link:- https://drive.google.com/file/d/1i9nQKlNtpXq6miEbSY4TA8GSjoA9YJYZ/view?usp=drive_link
+
+Journal Club
+
+Video Link:- https://drive.google.com/file/d/1R11df7adrl8rQxSqDYgQ01m9R0rNuun-/view?usp=drive_link
